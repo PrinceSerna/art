@@ -6,7 +6,7 @@
 **2021**<br>
 Material: Ceramic <br>
 
-*dimensions: 12,7cm(H) x 7.62cm(W)  |  5"(H) x 3"(W)* <br>
+*dimensions: 12.7cm(H) x 7.62cm(W)  |  5"(H) x 3"(W)* <br>
 *Handmade & hand painted.* <br>
 *Image courtesy of the artist.* <br>
 
